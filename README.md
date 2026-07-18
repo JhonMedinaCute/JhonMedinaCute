@@ -1,4 +1,4 @@
-# Holaaa, soy Jhon Medina Claros
+# Hi, I'm Jhon Medina Claros.
 
 Economist and Political Scientist from Universidad de los Andes (Colombia).
 
